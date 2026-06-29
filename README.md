@@ -7,7 +7,8 @@
     ⟡ — DX DID system . 🍥
     🥞 . I'm Kat, an alter within my system, I'm the main one that plays ponytown lol — ⟡
 ⟡ — Feel free to Interact and Roleplay with me!! . 🐌
-♥️ . Sign my ATABook!! — ⟡
+♥️ . Sign my <a href="https://katbananana.atabook.org/">ATABook</a> !! — ⟡
+<img src="https://file.garden/ac1bbI18jk1XQuJg/Disabilityemoji.png" width="30"> . <img src="https://file.garden/ac1bbI18jk1XQuJg/Queeremoij.png" width="30"> <img src="https://file.garden/ac1bbI18jk1XQuJg/Nonbinaryemoij.png" width="30"> . <img src="https://file.garden/ac1bbI18jk1XQuJg/Otherkinemoij.png" width="30">
 —
 ❌ . HARD DNI to Non-Traumagenic/Demo/Willow/Tulpa+ 'systems', 
 Pedos/MAPS+, Anti-LGBTQ+, Zoophiles, Racists, Anti-Medical, Anti-Education — ⟡
