@@ -13,6 +13,9 @@
 ❌ . HARD DNI to Non-Traumagenic/Demo/Willow/Tulpa+ 'systems', 
 Pedos/MAPS+, Anti-LGBTQ+, Zoophiles, Racists, Anti-Medical, Anti-Education — ⟡
 ⟡ — I block freely!! . ‼️
+—
+    
+![](https://komarev.com/ghpvc/?username=KatBananana)
 
 </pre>
 <br>
