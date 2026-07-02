@@ -10,10 +10,13 @@
 ♥️ . Sign my <a href="https://katbananana.atabook.org/">ATABook</a> !! — ⟡
 <img src="https://file.garden/ac1bbI18jk1XQuJg/Disabilityemoji.png" width="30"> . <img src="https://file.garden/ac1bbI18jk1XQuJg/Queeremoij.png" width="30"> <img src="https://file.garden/ac1bbI18jk1XQuJg/Nonbinaryemoij.png" width="30"> . <img src="https://file.garden/ac1bbI18jk1XQuJg/Otherkinemoij.png" width="30">
  —
-🍄 . My Fandoms: Minecraft, Pokémon, Phighting, Stars and Time, Slime Rancher, Garry's Mod, HSR, and more! — ⟡
-🌾 . Thin Ice: Yumeshippers, Fictionkins, under 15yo, 'no empathy' people, Chronically online people — ⟡
+🍄 . My Fandoms: Minecraft, Pokémon, Phighting, Stars and Time, 
+ Slime Rancher, Garry's Mod, HSR, and more! — ⟡
+🌾 . Thin Ice: Yumeshippers, Fictionkins, under 15yo, 
+ 'no empathy' people, Chronically online people — ⟡
 ❌ . HARD DNI: Non-Traumagenic+ 'systems' and their supporters, IRLs/DAs,
-Pedos/MAPS+, Anti-LGBTQ+, Zoophiles, Racists, Anti-Medical, Anti-Education, Anti-Recovery, People who believe in 'doubles' of any kind, Pro-AI, Proshitters — ⟡
+Pedos/MAPS+, Anti-LGBTQ+, Zoophiles, Racists, Anti-Medical, Anti-Education, 
+ Anti-Recovery, People who believe in 'doubles' of any kind, Pro-AI, Proshitters — ⟡
 ⟡ — I block freely!! . ‼️
 —
     
